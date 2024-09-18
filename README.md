@@ -1,2 +1,2 @@
-I don't have friends
+I don't have friends,
 I have family
