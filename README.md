@@ -1,1 +1,2 @@
-We are family
+I don't have friends
+I have family
